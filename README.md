@@ -1,1 +1,1 @@
-# projekt_dp
+# Hubert Dziedzic
